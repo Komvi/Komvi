@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Komvi
-- 🌱 I’m currently learning informatique support, i watts become DEV in the futur. 
+- 🌱 I’m currently learning informatique support, i was become DEV in the futur. 
 - 💞️ I’m looking to collaborate on learning session. 
 - 📫 How to reach me, vincent.kmbille@gmail.com. 
 
